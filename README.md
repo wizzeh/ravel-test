@@ -2,7 +2,6 @@
 
 Can you solve this riddle?
 
-I speak without a mouth and hear without ears.
-I have nobody, but I come alive with wind.
+I’m light as a feather, yet the strongest men can’t hold me for more than five minutes.
 
 What am I?
